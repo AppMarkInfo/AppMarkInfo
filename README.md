@@ -1,4 +1,4 @@
-# 👋 Welcome to AppMarkInfo
+# 👋 Welcome to AppMark Infotech
 
 🚀 **AppMark InfoTech** is a trusted IT solutions company with **8+ years of experience** delivering world-class digital products.  
 We specialize in crafting tailored solutions that empower businesses to grow, innovate, and succeed.  
